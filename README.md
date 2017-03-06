@@ -13,3 +13,5 @@ Der skal dog gøres noget, og som semi-rationelt menneske kan jeg ikke bare se p
 Fra Wing Chun har jeg dog lært at man ikke kan bekæmpe "hård" med "hård", men med "blød". At grave sig ned i sin hule med sit arsenal af gylle er fristende, men rent faktisk at gøre noget brugbart er hvad der er brug for.
 
 Derfor vil jeg selv gøre hvad jeg kan for stille op i **Kommunalvalget 2017**, og jeg opfordrer andre til at gøre det samme!
+
+![Borgens Nye Klæder](http://kryp2.dk/media/blogs/home/logooooooo.png)
