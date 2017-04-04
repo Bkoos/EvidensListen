@@ -10,7 +10,7 @@ Processen starter med at spørge om papirer på borgerservice. Disse papirer omh
 På papirerne skal der samles underskifter variende efter størrelsen af kommunen. Antallet kan ses i understående skema.
 
  By størrelse | Antal underskrifter
---|--
+-:|-
  København |  150
  Store |  50
  Små |  25
