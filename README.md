@@ -24,4 +24,4 @@ Selv vil jeg gøre gøre hvad jeg kan for stille op i **Kommunalvalget 2017**, o
 
 #### Lars Løkke Rasmussen kan umuligt være den bedst kvalificerede til statsminister... Just sayin
 
-![Borgens Nye Klæder](_assets\c33a5190a96b561487317f7df4da9e2a.jpg)
+![](_assets/c33a5190a96b561487317f7df4da9e2a.jpg)
