@@ -16,12 +16,12 @@ At der skal gøres noget ved den politiske struktur er nu mere end åbenlyst. So
 
 Fra Wing Chun har jeg lært at man ikke kan bekæmpe *hård* med *hård*, men med *blød*. At grave sig ned i sin hule med sit arsenal af gylle er fristende, for skal man ændre en holdning skal man igennem kognitiv deconans. Had og vold fører til mere had og vold. At sund fornuft kan tolkes ligger langt væk i og med at vi i dag har massere af data til at påvise hvorvidt en idé er god eller ej. Det nytter ikke noget at stille sig på bagben ved ny viden som strider overens med en holdning, for så ville vi stadig have hekse brændinger og guillotiner.
 
-### Brug information til at forbygge _dum_ og mindske den i størst mulig omfang
+### Brug information til at forbygge *dum* og mindske den i størst mulig omfang
 
- **HUSK:** #45 vil gerne date hans datter, **OG HUSK** at han på trods af chikane mod et utal af piger og kvinder, sammen løgn og racisme, er kommet til magt der er langt ud over hans egen fatteevne.
+ **HUSK:** #45 vil gerne date sin datter, **OG HUSK** at han, på trods af grav chikane mod et utal af piger og kvinder, lagt sammen løgn og racisme, er kommet til magt der er langt ud over hans fatteevne.
 
 Selv vil jeg gøre gøre hvad jeg kan for stille op i **Kommunalvalget 2017**, og jeg opfordrer alle andre til at gøre det samme!
 
 #### Lars Løkke Rasmussen kan umuligt være den bedst kvalificerede til statsminister... Just sayin
 
-![Borgens Nye Klæder](http://kryp2.dk/media/blogs/home/logooooooo.png)
+![Borgens Nye Klæder](_assets\c33a5190a96b561487317f7df4da9e2a.jpg)
