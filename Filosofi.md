@@ -1,0 +1,23 @@
+# Alle deltager i demokratiet vi har
+
+> Der skal ikke meget fantasi til at forestille sig en orkan af perverterede idéer har fået støtte til at fremme sin afstumpede holdning til milioner. Holdninger og overbevisninger som ikke har bund i nogen form for tal eller bare observationer fra forige årti.
+
+At vi med så meget information i lommen stadig kan have en ignorant holdning er for mange ubegribeligt. Mange gange mødes man af kognitiv deconans når man præsenterer aktuelle data og hændelser. Ultimativt må man bøje sig for at **dum** er en ufattelig stærk kraft i en verden hvor oplysning aldrig har været nemmere. Selv om underholdningsværdien i **"tåbelige mennesker gør tåbelige ting"** er høj, har det tilsyneladende en effekt på målsætning. I en sær kædereaktion hvor **idioti** er blevet *profitabelt* bliver målet for ens begrænsede tid på kloden bare **"ikke at være Amalie"** (Alt hvad der har med almindelige menneskers ufiltrede tanker og seertal er noget jeg aktivt holder mig fra, og har holdt den stil siden Amalie var en punchline for ubegribelige mængder af dum).
+
+Mennesker i frit fald fra et fly med jorden uden faldskærm er de eneste der i god mening ikke ønsker yderligere udvikling af situation. I alle andre situationer er hæmninger i udvikling sket for at malke et marked som står til at blive forandret betydeligt. En nostalgisk fornemmelse bør bare ikke være grundlaget for udryddelsen af menneskeheden som vi kender den. Så at fremme udvikling på alle fronte, om det er hvordan vi alle kan leve i fred, eller hvordan at ingen op verdensplan burde sulte når vi allerede producerer nok til ikke at være et problem. Vi er på vej mod en tid hvor landegrænser er vage forståelser for en hvis kultur og accent. Der er med internettet skabt en global kommunikationslinje hvorved afstanden mellem os er én armlængde.
+
+Tager man springende i teknologi vi bruger i betragtning fra de sidste 10 år og perspektiverer det til en livstid, er muligheder for hvad vi kan opleve eksponentielt stigende.
+
+Den del af medaljen vi så skal starte med at tale om, er den hvor muligheder ikke er lige så let tilgængelige. Det er svært at bryde et mønster når man ikke kender andet. Desværre er det alt for nemt at være ligeglad med sine medmennesker, som historisk set har endt civilationer. Fra politikeres synspunkt er det for dem bedre at borgere skændes om uligehed blandt køn, i stedet for uligehed bland rige og fattige.
+
+Interesse konflikt er et ord der i den sammenhæng burde nævnes daglig basis. Der er nemlig en ufattelig kapital at hente så længe man har en bestemt holdning på TV, og samtidig "reformere" skolen. Kigger man tilbage på sin folkeskole har der aldrig været planer om at undervise i hvordan markeder fungerer, eller hvad der står i grundloven. Der er åbenbart 30 menneskerettigheder, hvor jeg kender 0 af dem. Ydermere får man indtrykket af at det er svært at være politiker. Hvor logik vil pege på at folk uden ben har svært ved at løbe, lige som det er svært at være fornuftig uden kognitive evner. At værdien i at være absurd på TV er så høj leder dog en hen til at undlade at offentliggøre information der kan true deres indtægt.
+
+Der er mere end nok resurser til at hæve trivslen hos alle, hvis ikke rige fik mindst 7 cifre i bonus trods underskud. At vi uddanner afkom med de bedste betingelser kan sagtens ske, men så længe SKAT giver vores skattekroner til enhver med et CVR nr, så rager det ikke dem vi har stemt på. Jeg vil gerne calle at ingen der stemmer for krig har nogen form for familie i militæret. Endoktrinering fra regeringens side er en uhyggelig tanke når man har set en historie dokumentar.
+
+I sidste ende må man erkende at magt forpurer, og at politikere kan stemme sig selv til mere magt er der jeg står af. Politik er en public service, så når Søren Pind mener at han tjener dronningen, ikke folket, så væmmes jeg ved det ækle primitive og grådige sind bag hans pande. Et direkte demokrati hvor borgere stemmer på lovforslag i stedet for dukker der koster en formue, vil være et retfærdigt udgangspunkt. Med blockchain teknologi er det muligt at fjerne mellemmænd med "smart contract" som essentielt er en kontrakt hvor kode er lov. Med dem kan man programmere en DAO (Decentraliseret Autonom Organisation) som selvfølgelig er open source, så man ikke ender med endnu en KMD katastrofe.
+
+Vi er alle medskyldige i Helle Thorning og Lars Løkke, som umuligt kan være de bedst kvalificerede til statsminister posten. Måden at undgå tragikomiske øjeblikke hvor Lars og Donny bliver filmet sammmen, bør alle der er valgbare tage stilling til om dem der repræsenterer os er mere end de grådige snyltere de selv er så meget imod.
+
+## Bryder du dig om synet?
+
+![](_assets\16803502-usa-denmark-diplomacy.jpg)
