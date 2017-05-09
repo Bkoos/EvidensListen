@@ -39,7 +39,7 @@ Sund fornuft bør bruges i forhold til vores unge, selvom konsensus er at ingen 
 
 Der skal laves fag som programmering, som ikke nødvendigvis handler at skrive kode, men at lære om algoritmer mv. Fremtiden vil byde på meget arbejde i IT sikkerhed, men ikke at kunne programmere er lidt som ikke at kunne engelsk. Med tid skal der introduceres statestik, data behandling, kunstig intelligens, for lad os være ærlige at ingen af os har haft brug for Pytagoras. At kunne *skrive et CV* eller *udfylde min selvangivelse*, samt kende mine menneskerettigheder, er fag jeg hellere ville have haft end *kristendom*.
 
-## Psykiatrien er en resource
+## Psykiatrien må ikke glemmes
 Psykisk syge stigmatiseres til en grad hvor de ikke får mulighed for selvrealisering grundet det at snakke om hvordan de har det er tabu.
 
 Mange lider af en form for psykisk sygdom, medens endnu flere er berørt af det, hvis ikke alle. På trods af dette er der ikke rigtig nogen brugbar medicin på markedet. Alternativer bør tages i betragtning, om det er mindfulness, motion, cannabis, eller lignende.
@@ -57,3 +57,7 @@ Da det er nemt at glemme klima i norden fordi vi har et harsk vejr, men som udga
 Som enkeltperson kan det virke overvældende at bokse med hele klima problemet selv, men der er heldigvis mange forskere på sagen. At gøre virksomheder såvel som private beredt på ændringer i hvordan vi bruger biler, håndterer spild, og i generelt tænke på at vandet stiger, er essentielt for at planeten er her om 20 år i samme stand som nu.
 
 Der er allerede sket uoprettelig skade, hvor den første dyreart er udryddet grundet klimaforandring. Det skal derfor understreges at vi ikke bare kan bekymre os om det i fremtiden, og at der skal sættes ind hvor vi har en solid plan for at foresage størst mulig forandring.
+
+## Fængsler skal genovervejes fordi vi er kommet os over middelalderen
+
+Vi bliver nødt til at finde en anden måde at gribe voldige mennesker an.

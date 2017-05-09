@@ -4,7 +4,7 @@
 
 ## Valgbarhed
 
-For at kunne gå ind i politik skal man være valgbar. Dette betyder at man har en **ren straffeattest**, og at man har **boet i kommunen eller regionen i over 3 år**. Ikke mindst skal man være over 18.
+For at kunne gå ind i politik skal man være valgbar. Dette betyder at man har en **ren straffeattest**, og at man har **boet i kommunen eller regionen i over 3 år**. Ikke mindst skal man være over 18, foruden dansk infødsret. 
 
 Processen starter med at spørge om papirer på borgerservice. Disse papirer omhandler opstilling i kommune- eller regionvalg og skal udfyldes med CPR og navn på dig selv og om du stiller op for en liste, et parti eller som løsgænger. Siger man **"kandidatliste til at stille op i kommunal- og regionsvalg"**  burde der ikke være nogen tvivl.
 

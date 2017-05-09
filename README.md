@@ -6,9 +6,9 @@ Evidens listen er et politisk projekt som er kommet til live af "fuck it" mental
 
 Det er mere end nemt at spolere logikken der bruges af verdens mest kendte baby, men at reagere positivt er langt fra ligeså let. Det er ærgerligt at han blev valgt. Især når det der lå til grund for det overvejes. Med flere problemer belyst er der dog en positiv vinkel, hvor en modreaktion samler gennemslagskraft.
 
-At der skal gøres noget ved den politiske struktur er nu mere end åbenlyst. Som semi-rationelt menneske får jeg en dårlig smag i munden af at der ikke sættes ind, som er derfor at konklusionen må blive; selv at gå ind i politik. Det står for mig klart at vi alle er i samme båd og at vi alle tager demokrati alvorligt ved at engagerer os bedre.
+At [der skal gøres noget ved den politiske struktur](Fremtidssyn.md "Dokument med en sanslynlig fremtid") er nu mere end åbenlyst. Som semi-rationelt menneske får jeg en dårlig smag i munden af at der ikke sættes ind, som er derfor at konklusionen må blive; selv at gå ind i politik. Det står for mig klart at vi alle er i samme båd og at vi alle tager demokrati alvorligt ved at engagerer os bedre.
 
-> Kort sagt: **Fjern magtliderlige tåber fra deres plads**
+> Kort sagt: [**Fjern magtliderlige tåber fra deres plads**](Stil_op.md "Kort gennemgang af at stille op til kommunalvalg")
 >
 > Hvis vi skal kunnne blive ved med at bestemme over vores eget liv nytter det ikke at Søren Pind vil sporer os hvorend vi er på alle tidspunkt. Hvor USA måske har valgt sin sidste præsident, så har vi stadig en chance for at gøre Danmark et skønt sted for alle.
 

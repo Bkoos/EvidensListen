@@ -20,4 +20,4 @@ Vi er alle medskyldige i Helle Thorning og Lars Løkke, som umuligt kan være de
 
 ## Bryder du dig om synet?
 
-![](_assets\16803502-usa-denmark-diplomacy.jpg)
+![](_assets/16803502-usa-denmark-diplomacy.jpg)
