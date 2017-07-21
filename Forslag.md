@@ -51,7 +51,7 @@ Selv føler jeg mig ikke "terroriseret", men for dem der gør ligger ansvaret p�
 
 Gennem systematiske ændringer i hvordan vi behandler vores medmennesker, både på arbejdet og i privaten, som i læger og mekanikere får opdateret deres uddannelse til en dansk standard eller over. Der skal kommunikeres bland medarbejdere, men det kan sagtens ske på engelsk. Viden om dansk, og "danskhed" bør ikke prioriteres så længe vi kan behandle hinanden ordenligt.
 
-## Klima i høj prioritet
+## Klima i meget højere prioritet
 Da det er nemt at glemme klima i norden fordi vi har et harsk vejr, men som udgangspunkt er man en del af problemet såfremt man ikke er en del af løsningen. Det er decideret pinligt at vi fik et ’Fossil of the Day’ til klimatopmødet COP21 i 2015. Vi skal derfor være bedre til at fremme vedvarende energi, og selvfølgelig selv være førende for integrering af fremtidssikrede energikilder.
 
 Som enkeltperson kan det virke overvældende at bokse med hele klima problemet selv, men der er heldigvis mange forskere på sagen. At gøre virksomheder såvel som private beredt på ændringer i hvordan vi bruger biler, håndterer spild, og i generelt tænke på at vandet stiger, er essentielt for at planeten er her om 20 år i samme stand som nu.
@@ -60,4 +60,15 @@ Der er allerede sket uoprettelig skade, hvor den første dyreart er udryddet gru
 
 ## Fængsler skal genovervejes fordi vi er kommet os over middelalderen
 
-Vi bliver nødt til at finde en anden måde at gribe voldige mennesker an.
+Vi bliver nødt til at finde en anden måde at gribe voldige mennesker an. Der hersker ikke tvivl om hvorvidt der skal være konsekvenser ved at handle mod god moral. Det skal dog også være klart at fængsler er et lævn fra fortiden, og at vores medmennesker har mange former.
+
+Med den teknologi der er i hænderne på consumere når det gælder EEG maskiner eller GPS signaler. Der kan være mange måder at gribe ting an i dag - som ikke nødvendigvis var tilgængeligt for 100 år siden. Vi ved i dag meget mere omkring neurofysiologi end nogensinde før, men at bruge disse data sammen med utestede algoritmer skal selvfølgelig heller ikke være vejen.
+
+Generelt er fængsler et problem fordi de per defination er straffet efter love som er skrevet af løgnere. At handle moralsk korrekt er ikke nødvendigvis lovligt. Omvendt er det nogle gange helt lovligt at handle imod al god moral og sund fornuft.
+
+Når vores medmennesker stigmatiseres i samme omfang som folk der har overtrådt loven, især når mulighed for uddybning af om hvilke paragraffer der er snakke om, så skaber det et modtryk. Det er efterhånden ofte at nyheder omkring politi der overfaldes, og det kan ikke være nemt at opretholde love de ikke selv er enige i.
+
+**Der er systemiske problemer i lovgivning apparatet, men mon ikke at vi snart har data og computeringskraft til at gennemskue det?**
+
+## Kommer snart
+### Repruktive rettigheder til mænd

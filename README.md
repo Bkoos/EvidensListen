@@ -22,6 +22,6 @@ Fra Wing Chun har jeg lært at man ikke kan bekæmpe *hård* med *hård*, men me
 
 Selv vil jeg gøre gøre hvad jeg kan for stille op i **Kommunalvalget 2017**, og jeg opfordrer alle andre til at gøre det samme!
 
-#### Lars Løkke Rasmussen kan umuligt være den bedst kvalificerede til statsminister... Just sayin
+**Lars Løkke Rasmussen kan umuligt være den _bedst_ kvalificerede til statsminister... Just sayin'**
 
 ![](_assets/c33a5190a96b561487317f7df4da9e2a.jpg)
